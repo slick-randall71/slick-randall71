@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @slick-randall71
+- 👀 I’m interested in Apple stuff
+- 📫 How to reach me: nicholasr089@gmail.com
